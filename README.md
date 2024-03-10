@@ -2,7 +2,7 @@
 - 👀 Eu me interesso por tudo e mais um pouco.
 - 🌱 Estou descobrindo meus interesses na parte de tecnologia ainda.
 - 💞️ Por enquanto busco aprender, então estou aberto á ajudas.
-- 📫 MPor enquanto não tenho formas de contato
+- 📫 Por enquanto não tenho formas de contato.
 - 😄 Pronouns: Ele/Dele
 - ⚡ Fun fact: Nenhuma
 
